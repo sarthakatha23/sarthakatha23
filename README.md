@@ -4,7 +4,7 @@
 
 Best friends, lovers, collaborators, dreamers with quite a lot to share.
 
-## Who are we
+## Who are we?
 
 1. **Katha Haldar.** Completed her Integrated Bachelors-Masters Degree in Physics from IACS Kolkata. Presently pursuing her Ph.D from Indiana University, Indianapolis. Katha’s principal areas of interest include drawing, photography, creative writing and music. Her artwork has been nominated as a finalist in Hashtag Kalakar’s Global Arts And Painting Competition 2021 in the Oil Painting category. Her photographs have been featured in COG India’s India Photo Fest 2022 held at the Indian Council for Cultural Relations, Kolkata and in Luna Art’s Reminiscence: International Photography Exhibition 2023 held at the All India Fine Arts and Crafts Society, New Delhi. Katha is also a translator and illustrator for People’s Archive of Rural India. You can find her instagram account [here](https://instagram.com/_.joker_in_the_pack._) and her personal blog [here](https://katha-r-katha.blogspot.com/).
 
