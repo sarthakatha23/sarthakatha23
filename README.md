@@ -1,6 +1,6 @@
 ## Hello! Katha Haldar and Sarthak Das here.
 
-![Banner Image](image/Banner.png)
+![Banner Image](images/bio.jpeg)
 
 Best friends, lovers, collaborators, dreamers with quite a lot to share.
 
